@@ -1,4 +1,4 @@
 # newpractice
 just for practice 
 <br>
-Author - Rubaiya tahamim orovi
+Author - Rubaiya tahamim orovy
